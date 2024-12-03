@@ -3,7 +3,7 @@
 **Summary:**        
 
 - The global dashboard camera market size reached **USD 4.4 Billion** in 2024.
-- The market is expected to reach USD **USD 12.9 Billion** by 2033, exhibiting a growth rate **(CAGR) of 11.29%** during 2025-2033.
+- The market is expected to reach **USD 12.9 Billion** by 2033, exhibiting a growth rate **(CAGR) of 11.29%** during 2025-2033.
 - Europe leads the market, accounting for the largest dashboard camera market share.
 - Basic represents the majority of the market share in the technology segment on account of the rising focus on cost-effective solutions. 
 - 1-channel holds the biggest share in the dashboard camera industry.
